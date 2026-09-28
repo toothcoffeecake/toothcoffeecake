@@ -12,22 +12,16 @@
 <img width="150" height="20" alt="tumblr_91b3f3160f47b76b0f6fd30dbfa51909_9a6a000e_250" src="https://github.com/user-attachments/assets/71778450-735a-4333-9260-ac81d2fa91b3" /><img width="150" height="20" alt="tumblr_05dd3bfcc51f39e321eefde8746f06c8_57c4b7e8_400" src="https://github.com/user-attachments/assets/10793200-d3e1-4837-92e8-a2acdea48c2c" /><img width="150" height="20" alt="tumblr_57e2dea3242781b89c4c41a5b6cf4b75_e3255a78_250" src="https://github.com/user-attachments/assets/be5fe61b-d74d-4df3-9e48-ab3bade22700" /><img width="150" height="20" alt="tumblr_f9a92119da076159a7f2058715cfa359_d8fd2276_540" src="https://github.com/user-attachments/assets/547aeb4f-9269-46ab-af99-32bf4db5ab1b" /><img width="150" height="20" alt="tumblr_5b2b8ec904d1a32ad1c667492cc6e946_1e31d9eb_540" src="https://github.com/user-attachments/assets/8caa4901-0fff-4999-b9c1-75b8804c2e18" /><img width="150" height="20" alt="tumblr_c484ce11fc0297e1454d404a3f83d831_93cc0d32_250" src="https://github.com/user-attachments/assets/c93b5ab6-bd92-4542-b288-a389fc2a4e4f" /><img width="150" height="20" alt="tumblr_3766ae7deafc12bf6f17538f099bdf90_e61715d2_250" src="https://github.com/user-attachments/assets/2c307a83-7cd7-448b-9ad3-6c7a4b111938" /><img width="150" height="20" alt="tumblr_8c4cb2805b41a506984b549aa68f71f3_bf498480_250" src="https://github.com/user-attachments/assets/5596735e-c70b-44a6-a5fd-6996fa46bbba" />
 </div>
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 <img width="1000" height="95" alt="tumblr_a2cbecc47fc1465eb1ad6551b702e785_786f3630_1280" src="https://github.com/user-attachments/assets/dc385f12-4466-429b-bd5e-b228188a8999" />
+
+
+
+↓ some examples of my poniez so yk my style!! :eyes: <img width="600" height="5" alt="tumblr_c6317727336b1417f200324b7cc7d4f3_b4353ec2_1280" src="https://github.com/user-attachments/assets/61aca5e7-4e58-4da5-bef3-3882eabfeef6" />
+</div>
+
+<img width="200" height="204" alt="pony-town-shelly __ c+h+k __ sign sp_ata-dance-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/d9c62351-444e-459d-859e-1dcc3a4600c7" /><img width="200" height="212" alt="pony-town-🖤blot __ c+h+k __ sign sp_ata-dance-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/3c74ecce-6892-4a38-a1f1-9a9694470cb0" />
+<img width="184" height="212" alt="pony-town-🍰cosmo__ c+h+k __ sign sp_ata-dance-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/7a7c5db0-56fa-486f-ad06-4e0af73e6177" /><div align="center"><img width="196" height="216" alt="pony-town-📚 squirm __c+h+k__sign sp_ata-dance-sit-blinking-padded-toy349-4x" src="https://github.com/user-attachments/assets/5f287456-7636-49f8-8399-929e3315ee3d" /><img width="196" height="228" alt="pony-town-bassie __ c+h+k __ sign sp_ata-dance-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/2feb71b5-dfd1-4397-a757-006e398787a9" />
+
 
 
 
