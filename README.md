@@ -3,6 +3,12 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fredoka&size=25&duration=2000&pause=1000&color=8EC0F7&center=true&width=435&lines=%22Baby%2C+I'm+a+gem%2C+so+match+the+vibe!!%2C%2C;%22Don't+leave+me+crying+on+the+floor!!%2C%2C;%22Isn't+that+what+foes+are+for..%3F%2C%2C;%22I'm+an+open+book+so+just+pop+by!!%2C%2C;%22Don't+be+scared+anymore..%2C%2C;%22Isn't+that+what+foes+are+for...%3F%2C%2C)](https://git.io/typing-svg)
 </div>
 
+<div align="center">
+  
+<img width="20" height="20" alt="tumblr_a77fb267f1e5623d47c84ab2c4a6f26e_ef46ffe7_75" src="https://github.com/user-attachments/assets/5dca1773-bbf9-42d8-887e-ffa5d58e1586" /> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Ftoothcoffeecake&label=book%20readers%20!!%20%E2%8A%B9%20%E0%A3%AA%20%CB%96&countColor=%232ccce4&style=plastic)<img width="20" height="20" alt="tumblr_a77fb267f1e5623d47c84ab2c4a6f26e_ef46ffe7_75" src="https://github.com/user-attachments/assets/5dca1773-bbf9-42d8-887e-ffa5d58e1586" />
+</div> 
+
+
 ![Alt text](https://i.pinimg.com/1200x/b8/3a/a7/b83aa7893da49adabbc3bd4809d00e2d.jpg)
 <p align="center">
   <img src="https://64.media.tumblr.com/1cef54c89c6f297a9b854cbe74bd5ece/921ca0f4c71782bc-59/s1280x1920/6d01518ba9e938e1013cafa5c0c1974ad22ed0b6.gifv" />
