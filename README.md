@@ -3,6 +3,8 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/1cef54c89c6f297a9b854cbe74bd5ece/921ca0f4c71782bc-59/s1280x1920/6d01518ba9e938e1013cafa5c0c1974ad22ed0b6.gifv" />
 </p>
+<div align="center">
 <img width="568" height="40" alt="tumblr_502796439b6dddbc42b156a9f5864fc8_869822cf_640" src="https://github.com/user-attachments/assets/74e37ba1-9bc1-4d32-b446-4ae6bf5d0673" />
+</div>
 
 
