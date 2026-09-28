@@ -10,12 +10,16 @@
 
 
 ![Alt text](https://i.pinimg.com/1200x/b8/3a/a7/b83aa7893da49adabbc3bd4809d00e2d.jpg)
-<p align="center">
-  <img src="https://64.media.tumblr.com/1cef54c89c6f297a9b854cbe74bd5ece/921ca0f4c71782bc-59/s1280x1920/6d01518ba9e938e1013cafa5c0c1974ad22ed0b6.gifv" />
-</p>
+<div align="center">
+<img width="800" height="40" alt="tumblr_2f735aeb2f16ff9f1d39542d882c90b1_4e14ff14_1280" src="https://github.com/user-attachments/assets/911d7166-aa40-47d9-b427-867dc69f569d" />
+</div>
 <div align="center">
 <img width="800" height="40" alt="tumblr_89ed4cc278ee6cbc48712a873cb2f10d_2fc70089_1280" src="https://github.com/user-attachments/assets/96bba306-1750-4baf-9524-1592a191c2e3" />
 </div>
+<div align="center">
+<img width="800" height="40" alt="tumblr_7238eb3cc0521ded4701f38376102dd5_bc2e82a7_1280" src="https://github.com/user-attachments/assets/9e0b3831-debb-4d86-ad7d-542f6e7e7949" />
+</div>
+
 
 <div align="center">
 <img width="568" height="40" alt="tumblr_502796439b6dddbc42b156a9f5864fc8_869822cf_640" src="https://github.com/user-attachments/assets/74e37ba1-9bc1-4d32-b446-4ae6bf5d0673" />
@@ -41,7 +45,16 @@
 <div align="center">
 <img width="101" height="57" alt="tumblr_ff7195d7819d9d9ac3416050b35c9f76_9095d670_250" src="https://github.com/user-attachments/assets/29d8b2cb-3556-4ee3-be31-0997940f8cb7" /><img width="101" height="57" alt="tumblr_f9f9dd26cc3452af82f6a48d4b9afc69_edcfcad8_400" src="https://github.com/user-attachments/assets/e680af7a-5bd9-4d20-84e8-8325882e1e8c" /><img width="101" height="57" alt="tumblr_5dedd768e912066f0dbcdaedd7ce8332_376fe179_400" src="https://github.com/user-attachments/assets/d423cdcb-7d89-446c-bb98-cbcc076efebe" /><img width="99" height="55" alt="tumblr_b75fe9fb50e10a24692c5b7c692ef249_86bf1af9_100" src="https://github.com/user-attachments/assets/bb8aaabb-85ae-4a5d-b86d-2dfc912a5383" />
 <img width="99" height="55" alt="tumblr_b039fe4ed6dd53675e852f7cb1f2a5b7_aa645e0e_100 (1)" src="https://github.com/user-attachments/assets/76bb1630-ea49-4387-adcd-0777409a53ab" /><img width="101" height="57" alt="tumblr_5a134a86d682b96bfd93b5953cb9c274_4b6dbb7a_250" src="https://github.com/user-attachments/assets/1270d224-a5be-47ec-9972-104e6284d1fb" /><img width="101" height="57" alt="tumblr_2e14f89caee9e88c7f3cc13486dc1c28_9ecf3778_100" src="https://github.com/user-attachments/assets/87badf91-9bc6-4320-b5bb-cf97413df447" /><img width="101" height="57" alt="tumblr_685e79e86759c46c8cc33dcb94520ab7_56c08694_100" src="https://github.com/user-attachments/assets/1e0a4c90-4bbe-463b-baa4-ab734d700c06" /><img width="101" height="57" alt="tumblr_12a98a2eb16aac617e167a76b3f14d85_c50451de_100" src="https://github.com/user-attachments/assets/78a316c2-7f26-420a-b01f-49800178c16a" /><img width="101" height="57" alt="tumblr_0bae67bfd19eddafd3a185a40e8e21c0_0f3800b3_250" src="https://github.com/user-attachments/assets/d1c53288-dfc4-496d-a106-056415efeb7f" /><img width="100" height="56" alt="tumblr_04cebb7d3089ab941aecae5fb1cb84fb_4e65a645_100" src="https://github.com/user-attachments/assets/1fefa59b-dba8-466b-994e-102663933fc8" />
-<img width="99" height="56" alt="tumblr_fb4ebaaebdc85ba7223750ffe05ca10f_a015c180_100" src="https://github.com/user-attachments/assets/33cd1dba-62a3-457b-b1e0-9f2eb6cb0dfa" /><img width="99" height="56" alt="tumblr_5e1d6900b1b6d0a6f5297b07999ccaf2_96e615b1_100" src="https://github.com/user-attachments/assets/f2f49a0c-5fcd-4312-8f46-e7cc53157cbe" /><img width="99" height="56" alt="tumblr_9fd083b889374fecbf3322d28c78fd3f_211918c5_100" src="https://github.com/user-attachments/assets/75cf9f24-7700-48cd-8e79-7a31f4c0166c" />
+<img width="99" height="56" alt="tumblr_fb4ebaaebdc85ba7223750ffe05ca10f_a015c180_100" src="https://github.com/user-attachments/assets/33cd1dba-62a3-457b-b1e0-9f2eb6cb0dfa" /><img width="99" height="56" alt="tumblr_5e1d6900b1b6d0a6f5297b07999ccaf2_96e615b1_100" src="https://github.com/user-attachments/assets/f2f49a0c-5fcd-4312-8f46-e7cc53157cbe" /><img width="99" height="56" alt="tumblr_9fd083b889374fecbf3322d28c78fd3f_211918c5_100" src="https://github.com/user-attachments/assets/75cf9f24-7700-48cd-8e79-7a31f4c0166c" /><img width="99" height="56" alt="tumblr_2dcfe1a851759b6c1fc5738efda2ba2d_ed04a4dd_100" src="https://github.com/user-attachments/assets/c88f9abe-60ff-4aa8-bce0-57bac0313b4b" /><img width="107" height="66" alt="tumblr_e6bbea978d82d03d861013b9cd622dc9_d5ec2073_250" src="https://github.com/user-attachments/assets/5c325662-c4cd-4b39-8aac-64c48b002b70" />
+<img width="107" height="66" alt="tumblr_531dfc09bfe8045106d13af621b34de4_f0dbc6b1_250" src="https://github.com/user-attachments/assets/34990f7e-b7f2-42c7-9164-70cf81d72d80" /><img width="101" height="57" alt="tumblr_be66d46d1e2d16d0da973d4c3709920d_34b6e4cf_400" src="https://github.com/user-attachments/assets/bec02189-dac1-49ca-9b84-87671d790f2d" />
+
+
+
+
+
+
+
+
 
 
 
@@ -57,8 +70,10 @@
 </details>
 </div>
 
-
+<img width="1000" height="95" alt="tumblr_896987f0da744d637d69156a67ccc3f4_a944de41_1280" src="https://github.com/user-attachments/assets/246bf0f9-2546-4b6d-a18a-14bec6829f55" />
 <img width="1000" height="95" alt="tumblr_a2cbecc47fc1465eb1ad6551b702e785_786f3630_1280" src="https://github.com/user-attachments/assets/dc385f12-4466-429b-bd5e-b228188a8999" />
+<img width="1000" height="95" alt="tumblr_21a00862bcbf32a74f8f8eb90d127650_b732d3b1_1280" src="https://github.com/user-attachments/assets/f5a54fa1-0201-4af8-a9ed-1b28642e9084" />
+
 
 
 
